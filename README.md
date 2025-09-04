@@ -1,1 +1,0 @@
-# dae.ugto.serviciosexternos-estudiantes-defalut.NUA-300535
